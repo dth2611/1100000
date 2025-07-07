@@ -29,4 +29,4 @@
 总结
 这里是你寻找日本AV免费高清资源的首选站点。安全、快速、无广告骚扰，每日更新不断档，给你完美的观影体验。快收藏本站，第一时间获取最新日本AV免费在线观看资源吧！
 
-<span style="display:none;">[Canonical link] ( ）</span>
+<span style="display:none;">[Canonical link] (https://github.com/dth2611/1100000 ）</span>
